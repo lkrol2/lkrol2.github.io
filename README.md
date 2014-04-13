@@ -1,6 +1,6 @@
 lkrol2.github.io
 ================
-__Nie mów nic. Kocha się za nic. Nie is­tnieje żaden powód do miłoc__. 
+__Nie mów nic. Kocha się za nic. Nie is­tnieje żaden powód do miłości.(Paulo Coelho)__
 
 # Jeśli ktoś prosi nas o pomoc,to znaczy że jesteśmy jeszcze coś warci.(Paulo Coelho)
 ![](https://imagizer.imageshack.us/v2/280x373q90/835/tacg.jpg)
